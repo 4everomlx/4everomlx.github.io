@@ -128,15 +128,16 @@ So, my **wifey**, take all the happiness in this world, and if there is any sorr
 **O ❤️**  
 
 ---
-
-# ✨💖 YOU KNOW I LOVE YOU, BUT I LOVE YOU MORE THAN YOU KNOW 💖✨
-
----
 # ❤️ Love Pics ❤️
 
 <p align="center">
   <img src="Web_Photo_Editor.jpg" width="450" height="auto">
   <img src="Web_Photo_Editor (1).jpg" width="450" height="auto">
 </p>
+
+---
+
+# ✨💖 YOU KNOW I LOVE YOU, BUT I LOVE YOU MORE THAN YOU KNOW 💖✨
+
 
 
