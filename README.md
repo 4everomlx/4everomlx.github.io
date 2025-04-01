@@ -135,8 +135,8 @@ So, my **wifey**, take all the happiness in this world, and if there is any sorr
 # ❤️ Love Pics ❤️
 
 <p align="center">
-  <img src="Web_Photo_Editor.jpg" width="300">
-  <img src="Web_Photo_Editor (1).jpg" width="300">
+  <img src="Web_Photo_Editor.jpg" width="450" height="auto">
+  <img src="Web_Photo_Editor (1).jpg" width="450" height="auto">
 </p>
 
 
