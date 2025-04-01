@@ -42,7 +42,7 @@
 38. 🌞 Your positive energy  
 39. 🕊️ Your gentleness  
 40. 😈 Your bites  
-41. ❤️‍🔥 Your flaws (because they make you perfect)  
+41. ❤️‍🔥 Your flaws  
 42. 😳 Your shy-ness  
 43. 🤗 Your acceptance  
 44. 💬 Your words  
@@ -57,7 +57,7 @@
 53. ☮️ You’re my peace  
 54. 🤪 Your silliness  
 55. ❤️ Your affection  
-56. 🌹 Your smell (smell like you should be mine forever 💘)  
+56. 🌹 Your smell (smells like you should be mine forever 💘)  
 57. 🎯 Your responsibility  
 58. 💝 Your appreciation  
 59. 🔐 You know everything about me  
