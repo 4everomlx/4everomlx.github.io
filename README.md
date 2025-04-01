@@ -123,8 +123,7 @@ So, my **wifey**, take all the happiness in this world, and if there is any sorr
 > **Peace is yours, stress is mine;**  
 > **Happiness is yours, sorrow is mine;**  
 > **Everything is yours, but YOU ARE MINE.”** 💍💞  
-
-With all my heart,  
+ 
 **Your wifey,**  
 **O ❤️**  
 
