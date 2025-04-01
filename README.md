@@ -132,10 +132,5 @@ So, my **wifey**, take all the happiness in this world, and if there is any sorr
 # ✨💖 YOU KNOW I LOVE YOU, BUT I LOVE YOU MORE THAN YOU KNOW 💖✨
 
 ---
-# ❤️ Love Pics ❤️
 
-| ![Pic 1](8CF1B4C0-F829-45A3-BB33-F249FD14F07B.JPG) | ![Pic 2](images/pic2.jpg) | ![Pic 3](images/pic3.jpg) |
-|---------------------------|---------------------------|---------------------------|
-| ![Pic 4](images/pic4.jpg) | ![Pic 5](images/pic5.jpg) | ![Pic 6](images/pic6.jpg) |
-| ![Pic 7](images/pic7.jpg) |                           |                           |
 
